@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ViolentGenius
+- 👋 Hi, I’m @ViolentGenius... KittyPeach
 - 👀 I’m interested in solving,learning and creating new projects
 - 🌱 I’m currently learning how to fork on GitHub..and a little coding here and there
 - 💞️ I’m looking to collaborate on a special project/business venture
